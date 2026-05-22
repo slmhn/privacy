@@ -69,4 +69,4 @@ If you have questions about this Privacy Policy, please contact us at:
 
 ### 联系方式
 如果您对本隐私政策有任何疑问，请联系：  
-**Email / PayPal:** paypal.me/slmhnp
+**Email / hnpdsslm@outlook.com
